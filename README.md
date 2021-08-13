@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @kindanjin  
+- 👀 I’m interested in coding  
